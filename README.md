@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @AndoMarcAndo
 - 👀 I’m interested in Crypto
 - 🌱 I’m currently learning More and more
-- 💞️ I’m looking to collaborate on TOFER COIN
+- 💞️ I’m working on TOFER COIN
 - 📫 How to reach me t.me/ToferCoin
 
 <!---
